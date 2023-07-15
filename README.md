@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Machine Learning, and product management.**
 
-- 📫 How to reach me **tayadeakash.m@gmail.com**
+- 📫 Reach out to me at **tayadeakash.m@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
